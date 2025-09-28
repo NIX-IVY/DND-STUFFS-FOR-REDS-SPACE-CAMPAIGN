@@ -1,0 +1,17 @@
+# Trans Rights
+
+**Name**: Sierra Watson
+**Age**: 36
+**Species**: Human
+**Occupation**: South Corvid Rook
+
+
+Sierra grew up in the ecumenopolis , 
+
+Sierra didn't have an excellent upbringing. Her family was more worried about staying safe at home. In her teen years she would sneak out, explore the city and witness syndicates and mafias act like there was nobody to stop them. Her silver tongue got her out of situations with these groups and at one point got her involved. A syndicate called the South Corvids was conducting business near her home, Sierra slipped up and the Corvids started paying attention to her. When she was 19 she witnessed the Carrions (A sub group of the South Corvids, specialised in carrying out executions) killing a politician. Unfortunately for her, she was spotted before she could run away. The Carrions caught up to her and instead of killing her offered her a deal. Since the syndicate had known she had been witness to some of their dealings, she would keep her mouth shut if anyone questioned her and in return they wouldn't kill her and her family. 
+
+As fate would have it, within the week the guard stormed her house. Her family watched as she was arrested and taken to prison. There they questioned her about the politician she had witnessed the execution of. An anonymous tip had told them she was involved in the killing. She knew when to hold back her silver tongue and stayed silent through all the interrogations. After 3 years they released her since they couldn't prove she had killed anyone. When she got out her new family was waiting for her. The same man that had given her the deal. He knew she didn't break, she told them nothing. And loyalty in the South Corvids is rewarded. She was brought to her family home where her parents and siblings greeted her but told her she couldn't stay there. If she did they would all be in danger. Having nowhere else to go, Sierra joined the South Corvids and began life in a syndicate.
+
+During her years in the syndicate she would train, become more cunning, agile, deadly and after years of being just one of the South Corvids she joined a specialised group: The Rooks. This group felt like family to her, a lot of the Rooks were seen getting along with each other and when seen out in public were usually supporting members of another group. Within The Rooks and her new found family she would begin to advance her training, improving not only her swords skills and improve her own charisma but also pick up small hobbies like playing instruments and would occasionally play for her friends.
+
+After several years, Sierra had continued to climb the ranks within the syndicate and eventually the higher ups called out for a task. She would be split off from the rest of The Rooks and the entire South Corvid Syndicate. They wanted her to take a place in a developing colony, to expand the reach of the entire Corvidae Syndicate. 
