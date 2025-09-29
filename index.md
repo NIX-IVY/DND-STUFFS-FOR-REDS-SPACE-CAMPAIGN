@@ -1,12 +1,12 @@
-# Trans Rights
+# Sierra Watson's Story
 
-**Name**: Sierra Watson
-**Age**: 36
-**Species**: Human
-**Occupation**: South Corvid Rook
+**Name**: Sierra [Watson](watsonfamily#the-watson-family)  
+**Age**: 36  
+**Species**: Human  
+**Occupation**: [South Corvid](thecorvidae#the-corvidae) [Rook](thecorvidae#rooks)
 
 
-Sierra grew up in the ecumenopolis , 
+Sierra grew up in the ecumenopolis [Black Garden](blackgarden#black-garden), growing up within [District South 17](blackgarden#south-17) a mid-low class district controlled by the Fractal. Sierra spent her life avoiding getting into trouble with the surrounding factions and tried to keep to herself. When she was 19 she was working as a waitress at the same restaurant her mother worked in. She would usually work late up until the restaurant shut for the night and instead of heading straight home would take detours and explore the district. Between Fractal and The Jade Call the streets were relatively safe and the night life of the district was always lively.    
 
 Sierra didn't have an excellent upbringing. Her family was more worried about staying safe at home. In her teen years she would sneak out, explore the city and witness syndicates and mafias act like there was nobody to stop them. Her silver tongue got her out of situations with these groups and at one point got her involved. A syndicate called the South Corvids was conducting business near her home, Sierra slipped up and the Corvids started paying attention to her. When she was 19 she witnessed the Carrions (A sub group of the South Corvids, specialised in carrying out executions) killing a politician. Unfortunately for her, she was spotted before she could run away. The Carrions caught up to her and instead of killing her offered her a deal. Since the syndicate had known she had been witness to some of their dealings, she would keep her mouth shut if anyone questioned her and in return they wouldn't kill her and her family. 
 
